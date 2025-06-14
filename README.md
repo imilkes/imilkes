@@ -29,10 +29,12 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
 
 <b> Studies and Interests </b>
 
-        🚲 I studied business admin (bba + mba), information systems (mis) and ancient history at uni (minor).
+        🚲 I studied business admin (bba + mba), information systems (mis) and ancient history (minor).
         ☎️ I am fluent in Spanish, French and English - (learning Portuguese).
         🧑‍🚀 I like studying the 'paranormal' - quantum, psyche, subtle planes, past lives ++ 
         🔭 I like learning new things and traveling to new places.
+        💻 I became a self-taught fullstack product designer creating multiple apps [preferred]
+        🧰 I learned how to code apps with coding bootcamps as a student and as a teacher.
 
 
 <b> Beliefs, values, experiences and what I know to be true </b>
