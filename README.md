@@ -42,7 +42,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🌠 We are souls visiting Gaia, temporarily, to create, reinvent ourselves and learn.
        🤍 Before incarnating, our soul agrees to experience lessons in the lifetime.
        🧮 Spiritual integrity is what we carry to future lifetimes.
-       🛰️ I appreciate Self-Agency, Independence, Truth and Kindness: helping others not sign of weakness or dependence. 
+       🛰️ I appreciate Self-Agency, Independence, Truth and Kindness: helping others is not sign of weakness or trauma. 
          
 
 
