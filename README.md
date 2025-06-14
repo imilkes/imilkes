@@ -42,10 +42,12 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🌹 I believe in the power of integrity, the integrity of intentions and the spirit world. 
        🏄‍♀️ I know Love is the greatest force, beyond time and space.
        🌠 We are souls visiting Gaia, temporarily, to create, reinvent ourselves and learn.
-       🤍 Before incarnating, our soul agrees to experience lessons in the lifetime.
-       🧮 Spiritual integrity is what we carry to future lifetimes.
-       🛰️ I appreciate Self-Agency, Independence, Truth, Kindness: helping others/being helped are not signs of weakness or trauma. 
-         
+       🤍 Before incarnating, our soul agrees to experience lessons during the lifetime.
+       🧮 Spiritual integrity is what we carry to future lifetimes - forever.
+       🌊 Receiving help or helping others are not signs of weakness or trauma. 
+       🛰️ I appreciate Self-Agency, Independence, Truth and Kindness.
+       📝 There is always something to learn.
+        
 
 
 <p>🚀 <b>Tech Stack At The Moment </b></p>
