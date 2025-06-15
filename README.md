@@ -1,6 +1,6 @@
 # 🌞 🌴 🌬️ 🌻 bio ✨ 🔥 🌊 🫀
 
-*There is always an echo in the akasha.*
+*There is always an echo in the akasha. Thanks to all because = spiritual evolution.*
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our soul agreements and life purposes.
 
