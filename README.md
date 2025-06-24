@@ -14,14 +14,14 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
         
 <b>In the past I:</b>
 
-        🦈 survived to help the world's top mediums, armies, psychics and hypnotists [soul agreements].
+        🤍 survived to help the world's top mediums, armies, psychics and hypnotists [soul agreements].
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
         ⛓️ launched the world's 1st climate wallet for geo-localized biodiversity climate assets on-chain.
-        🚸 launched decentralized education initiatives to empower children and teenagers = https://vimeo.com/417870288/
-        🌈 launched Colombia Diversa's LGTBQ App (1st version): = https://celeste.colombiadiversa.org/
-        🌈 helped strengthen communities for Gaia's restoration, 'unlocking' trillions in value and new possibilities.
+        🫆 launched decentralized education initiatives to empower children and teenagers = https://vimeo.com/417870288/
+        💎 launched Colombia Diversa's LGTBQ App (1st version): = https://celeste.colombiadiversa.org/
+        🇬🇧🇧🇷 helped strengthen communities for Gaia's restoration, 'unlocking' trillions in value and new possibilities.
         
         🧭 Founder at: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
         
