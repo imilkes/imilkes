@@ -4,24 +4,25 @@
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our soul agreements and life purposes.
 
-<b>At the moment I am focused on:</b>
+<b> 💎 Some lessons:</b>
                                     
-         🌳 spiritual evolution and transformation
-         📊 becoming a Data Scientist
-         🔮 learning Ayurveda and Yoga
-         ♒ staying patient while the system upgrades
-       
-        
+         🫀 💎 Spiritual integrity and actions are registered regardless of the system participants, the system intentions and the system 'state'.
+         🔮 Your Life Review is your life review. People will misjudge you anyways. Be true to who you are and what you believe in.
+         ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
+         🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
+         🫆 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
+         
+      
 <b>In the past I:</b>
 
-        🤍 survived to help the world's top mediums, armies, psychics and hypnotists [soul agreements].
+        🤍 survived to help the world's top mediums, armies, psychics and hypnotists [soul agreements]. 
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
         ⛓️ launched the world's 1st climate wallet for geo-localized biodiversity climate assets on-chain.
         🫆 launched decentralized education initiatives to empower children and teenagers = https://vimeo.com/417870288/
         💎 launched Colombia Diversa's LGTBQ App (1st version): = https://celeste.colombiadiversa.org/
-        🇬🇧🇧🇷 helped strengthen communities for Gaia's restoration, 'unlocking' trillions in value and new possibilities.
+        🤍 actively participated in the reactivation of the system worldwide. 
         
         🧭 Founder at: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
         
