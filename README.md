@@ -19,7 +19,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
       
 <b>In the past I:</b>
 
-        🤍 helped the world's top mediums/armies/psychics/hypnotists. Prevented Collective Suicide from orange mode worldwide (boosted by 'hierarchical egos')
+        🤍 helped the world's top mediums/armies/psychics/hypnotists. Prevented Collective Suicide from orange mode worldwide.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
@@ -51,6 +51,8 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🌊 Receiving help or helping others are not signs of weakness or trauma. 
        🛰️ I appreciate Self-Agency, Independence, Truth and Kindness.
        📝 There is always something to learn.
+       🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' there are things like 'motherhood'. 
+       🤍 Forever doubted by this planet's participants. Thank You Anyways And Always!
         
 
 
