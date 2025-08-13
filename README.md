@@ -19,7 +19,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
       
 <b>In the past I:</b>
 
-        🤍 helped the world's top mediums, armies, psychics and hypnotists. Birthed a better system from decades of 'orange' mode, worldwide. 
+        🤍 helped the world's top mediums, armies, psychics and hypnotists. Cleaned eyes from decades of orange mode, worldwide. Still being doubted.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
