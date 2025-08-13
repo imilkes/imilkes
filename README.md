@@ -12,8 +12,8 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🫆 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
          🔫 SPACE-SPACE and Time being relative, anchoring to spirit, true intentions and love becomes foundational.
-         🫀 The best leaders know how and when to follow. It's all an evolving spiritual process. Love guides, the roles change, the essence stays.
-         🫀🫀 It's All interconnected: Souls/Time/Spirit/Akasha. Some people answered calls from the past, some answer calls from the future.
+         🫀 The best leaders know how and when to follow. It's all an evolving spiritual process. Love guides, the roles evolves = the essence stays.
+         🫀🫀 ACCESS ACCESS. It's All interconnected: Souls/Time/Spirit/Akasha. Some people answered calls from the past, some answer calls from the future.
 
          
       
