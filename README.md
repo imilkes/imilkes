@@ -1,6 +1,6 @@
 # 🌞 🌴 🌬️ 🌻 bio ✨ 🔥 🌊 🫀
 
-*There is always an echo in the akasha. Thanks to all because = spiritual evolution.*
+*There is always an echo in the akasha. Thanks to all because = spiritual evolution. *
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our soul agreements and life purposes.
 
@@ -11,11 +11,12 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🫆 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
+         ☎️ Some reincarnations entail answering calls across Time/ Space. Time/ Space are always relative. Our reality is quantum; we are spirits first.
          
       
 <b>In the past I:</b>
 
-        🤍 survived to help the world's top mediums, armies, psychics and hypnotists. Saved the system from decades of 'orange' mode, worldwide. 
+        🤍 helped the world's top mediums, armies, psychics and hypnotists. Saved the system from decades of 'orange' mode, worldwide. 
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
