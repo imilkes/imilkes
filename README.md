@@ -11,7 +11,9 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🫆 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         ☎️ Some reincarnations entail answering calls across Time/ Space. Time/ Space are always relative. Our reality is quantum; we are spirits first.
+         ☎️ Some reincarnations entail answering calls across Time/ Space. 
+         🫀 Time/ Space are always relative. Our reality is quantum; we are spirits first.
+         🫀 The best leaders know how and when to follow and how and when to lead. It's all an evolving spiritual process. Love is a compass.
          
       
 <b>In the past I:</b>
