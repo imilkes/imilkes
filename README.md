@@ -13,7 +13,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫆 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
          ☎️ Some reincarnations entail answering calls across Time/ Space. 
          🫀 Time/ Space are always relative. Our reality is quantum; we are spirits first.
-         🫀 The best leaders know how and when to follow and how and when to lead. It's all an evolving spiritual process. Love is a compass.
+         🫀 The best leaders know how and when to follow and how and when to lead. It's all an evolving spiritual process. Love guides.
          
       
 <b>In the past I:</b>
