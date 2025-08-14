@@ -1,19 +1,23 @@
-# 🌞 🌴 🌬️ 🌻 bio ✨ 🔥 🌊 🫀
+# 🌞 🌴 🌬️ 🌻 bio ✨ 🔥 🌊 🫀 (there is no meaning in words order) 
 
-*There is always an echo in the akasha. *
+*There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time. *
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution.
 
 <b> 🃏 Some Lessons, Mission Accomplished:</b>
                                     
-         🫀💎💎🔮 Spiritual integrity and actions are registered regardless of the system participants, the system intentions and the system 'state'.
+         🫀💎 Spiritual integrity and actions are always registered regardless of the system participants, the system intentions and the system 'state'.
          🪞 Your Life Review is your life review. People will misjudge you anyways. Be true to who you are and what you believe in.
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         🛋️ Your relationship with yourself (how you see yourself) is a lens to how you see others.
+         🔮 Your relationship with yourself (how you see yourself) is a lens to how you see others.
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
-         🫀🫀 ACCESS ACCESS. It's All interconnected: time is an infinite door within to the now. Some people answer calls from the past, some answer calls from the future.
+         🫀💎 access-access. I never played by the system 'rules'. Time is an infinite door. Some people answer calls from the past, some answer calls from the future.
+         
+         👵🏼 In a world with 'human' rules designed for 'men', categories such as androgenous sun women could be considered to prevent collective suicide or system 'bugs'.
+         🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. 
+
 
 <b>Anchored To The Cosmos:</b>
 
@@ -52,7 +56,6 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' there are things like 'motherhood'. 
        🤍 Forever doubted by this planet's participants. Thank You Anyways And Always!
         
-
 
 <p>🚀 <b>Tech Stack At The Moment </b></p>
 <p> <a target="_blank" href="https://raw.githubusercontent.com/devicons/devicon/master/icons/ruby/ruby-original.svg" style="display: inline-block;"><img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/ruby/ruby-original.svg" alt="ruby" width="42" height="42" /></a>
