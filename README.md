@@ -12,7 +12,8 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
          🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' by left-inclined trains from behind is eventually revealed by the cosmos.
-         🫀💎 Original CatSaver. mother/sister/nephew on Earth; spirit team in heaven. 
+         🫀 Spirit team in heaven. 
+         💎 restarting a lifetime within a lifetime - cats.
          
          👵🏼 Androgenous sun women may be considered after this reset. They are the realest in my reincarnation (updated).
          
