@@ -1,8 +1,8 @@
 # 🌞 🌴 🌬️ 🌻 bio ✨ 🔥 🌊 🫀
 
-*There is always an echo in the akasha. Thanks to all because = spiritual evolution. *
+*There is always an echo in the akasha. *
 
-I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes.
+I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution.
 
 <b> 🃏 Some Lessons, Mission Accomplished:</b>
                                     
@@ -15,11 +15,9 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
          🫀🫀 ACCESS ACCESS. It's All interconnected: time is an infinite door within to the now. Some people answer calls from the past, some answer calls from the future.
 
-         
-      
-<b>In the past I:</b>
+<b>Anchored To The Cosmos:</b>
 
-        🤍 helped the world's top mediums/armies/psychics/hypnotists. Prevented Collective Suicide from orange mode worldwide.
+        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
