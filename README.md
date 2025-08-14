@@ -15,7 +15,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
          🫀💎 access-access. I never played by the system 'rules'. Time is an infinite door. Some people answer calls from the past, some answer calls from the future.
          
-         👵🏼 In a world with 'human' rules designed for 'men', categories such as androgenous sun women could be considered to prevent collective suicide or system 'bugs'.
+         👵🏼 In a world with 'human' rules designed for 'fathers', categories such as androgenous sun women could be considered to prevent collective suicide or system 'bugs'.
          🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. 
 
 
@@ -52,7 +52,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🧮 Spiritual integrity is what we carry to future lifetimes - forever.
        🌊 Receiving help or helping others are not signs of weakness or trauma. 
        🛰️ I appreciate Self-Agency, Independence, Truth and Kindness.
-       📝 There is always something to learn.
+       📝 There is always something to learn. 
        🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' there are things like 'motherhood'. 
        🤍 Forever doubted by this planet's participants. Thank You Anyways And Always!
         
