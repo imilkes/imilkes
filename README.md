@@ -4,7 +4,7 @@
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'. .
 
-<b> 🃏 Transits And Lessons. Mission Accomplished:</b>
+<b> ilana == 'tree' </b>
                                     
          🫀💎 Spiritual integrity and actions are always registered regardless of the system participants, the system intentions and the system 'state'.
          🪞 Your Life Review is your life review. People will misjudge you anyways. Be true to who you are and what you believe in.
@@ -12,14 +12,13 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
          🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' by left-inclined trains from behind is eventually revealed by the cosmos.
-         🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
          🫀💎 ACCESS. GIVERS. By choosing the 'source' I chose my 'past life' within this lifetime, which, paradoxically, is the future. 
          
          👵🏼 Original CatSaver. Androgenous sun women may be considered after this reset. They are the realest in my reincarnation (updated).
          🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. Learning is a gift and a sign of growth. 
 
 
-<b> new (left + left: right) = new cat:</b>
+<b> transitions </b>
 
         🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us. Drive.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
@@ -33,7 +32,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
         🧭 Founder at: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
         
 
-<b> Studies and Interests </b>
+<b> Studies </b>
 
         🚲 I studied business admin (bba + mba), information systems (mis) and ancient history (minor).
         ☎️ I am fluent in Spanish, French and English - (learning Portuguese).
@@ -54,8 +53,8 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🛰️ I appreciate Self-Agency, Independence, Truth and Kindness.
        📝 There is always something to learn. 
        🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' there are things like 'motherhood'. 
-       🤍 Forever doubted by this planet's participants. Thank You Anyways And Always!
-
+       🤍 Forever doubted by this planet's participants. Thank You Anyways. 
+       🫀 All is an evolving spiritual process. Love guides, the roles evolve = the essence stays.
   
         
 
