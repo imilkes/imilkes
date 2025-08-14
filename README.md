@@ -11,7 +11,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         🔮 Your relationship with yourself (how you see yourself) is a lens to how you see others.
+         🔪 CheaTers = ExtremeRigh 🥸Your relationship with yourself (how you see yourself) is a lens to how you see others.
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
          🫀💎 ACCESS. GIVERS. By choosing the 'source' I chose my 'past life' within this lifetime, which, paradoxically, is the future. 
          
@@ -19,9 +19,9 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. Learning is a gift and a sign of growth. 
 
 
-<b>Anchored To The Cosmos:</b>
+<b> new (left + left: right) = new cat:</b>
 
-        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us. 
+        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us. Drive.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
