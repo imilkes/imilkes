@@ -28,7 +28,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
         ⛓️ launched the world's 1st climate wallet for geo-localized biodiversity climate assets on-chain.
         🫆 launched decentralized education initiatives to empower children and teenagers = https://vimeo.com/417870288/
         💎 launched Colombia Diversa's LGTBQ App (1st version): = https://celeste.colombiadiversa.org/
-        🤍 actively participated in the reactivation of the system worldwide. 
+        🤍 actively participated in the reactivation of the system update worldwide. The key is remembering who launched 'before'.
         
         🧭 Founder at: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
         
