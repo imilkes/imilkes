@@ -15,7 +15,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
          🫀💎 ACCESS. GIVERS. I never played by the system 'rules'. Time is infinite. Some people answer calls from the past, some answer calls from the future.
          
-         👵🏼 Androgenous sun women could be considered to prevent collective suicide or the end of the human race ('human rules ' writers).
+         👵🏼 Androgenous sun women could be considered. They are real (updated).
          🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. Learning is a gift and a sign of growth. 
 
 
