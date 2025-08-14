@@ -13,10 +13,10 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
          🔮 Your relationship with yourself (how you see yourself) is a lens to how you see others.
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
-         🫀💎 access-access. I never played by the system 'rules'. Time is an infinite door. Some people answer calls from the past, some answer calls from the future.
+         🫀💎 ACCESS ACCESS. I never played by the system 'rules'. Time is an infinite door. Some people answer calls from the past, some answer calls from the future.
          
-         👵🏼 In a world with 'human' rules designed for 'fathers', categories such as androgenous sun women could be considered to prevent collective suicide or system 'bugs'.
-         🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. 
+         👵🏼 In a world with rules designed for 'fathers', categories such as androgenous sun women could be considered to prevent collective suicide or the end of the human race.
+         🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. Learning is a gift and a sign of growth. 
 
 
 <b>Anchored To The Cosmos:</b>
