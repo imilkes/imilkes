@@ -1,10 +1,10 @@
-# 🌞 🌴 🌬️ 🌻 bio ✨ 🔥 🌊 🫀 (there is no meaning in words or order) 
+# 🌞 🌴 🌬️ 🌻 bio ✨ 🔥 🌊 🫀 (there is no meaning in words or order of words) 
 
 *There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time. *
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'. .
 
-<b> 🃏 Transits And Lessons. Mission Accomplished:</b>
+<b> 🃏 Transits And Lessons. 'Die' To Choose The Realest. Mission Accomplished:</b>
                                     
          🫀💎 Spiritual integrity and actions are always registered regardless of the system participants, the system intentions and the system 'state'.
          🪞 Your Life Review is your life review. People will misjudge you anyways. Be true to who you are and what you believe in.
@@ -15,13 +15,13 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
          🫀💎 ACCESS. GIVERS. By choosing the 'source' I chose my 'past life' within this lifetime, which, paradoxically, is the future. 
          
-         👵🏼 Androgenous sun women could be considered. They are real (updated).
+         👵🏼 Androgenous sun women could be considered. They are the realest in this reincarnation (updated).
          🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. Learning is a gift and a sign of growth. 
 
 
 <b>Anchored To The Cosmos:</b>
 
-        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us.
+        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us. 
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
