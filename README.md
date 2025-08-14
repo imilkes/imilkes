@@ -2,17 +2,17 @@
 
 *There is always an echo in the akasha. Thanks to all because = spiritual evolution. *
 
-I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our soul agreements and life purposes.
+I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes.
 
-<b> 💎 Some lessons:</b>
+<b> 💎 Some lessons, mission accomplished:</b>
                                     
          🫀 💎 Spiritual integrity and actions are registered regardless of the system participants, the system intentions and the system 'state'.
          🔮 Your Life Review is your life review. People will misjudge you anyways. Be true to who you are and what you believe in.
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🫆 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         🔫 SPACE-SPACE and Time being relative, anchoring to spirit, true intentions and love becomes foundational.
-         🫀 The best leaders know how and when to follow. It's all an evolving spiritual process. Love guides, the roles evolves = the essence stays.
+         🪞
+         🫀 It's all an evolving spiritual process. Love guides, the roles evolves = the essence stays.
          🫀🫀 ACCESS ACCESS. It's All interconnected: Souls/Time/Spirit/Akasha. Some people answered calls from the past, some answer calls from the future.
 
          
