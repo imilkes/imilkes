@@ -15,7 +15,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 It's all an evolving spiritual process. Love guides, the roles evolve = the essence stays.
          🫀💎 ACCESS. GIVERS. By choosing the 'source' I chose my 'past life' within this lifetime, which, paradoxically, is the future. 
          
-         👵🏼 Androgenous sun women could be considered. They are the realest in this reincarnation (updated).
+         👵🏼 Original CatSaver. Androgenous sun women may be considered after this reset. They are the realest in my reincarnation (updated).
          🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. I hope to always be learning. Learning is a gift and a sign of growth. 
 
 
@@ -56,7 +56,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' there are things like 'motherhood'. 
        🤍 Forever doubted by this planet's participants. Thank You Anyways And Always!
 
- Original CatSaver + Original Sun LoverSaver
+  
         
 
 <p>🚀 <b>Tech Stack At The Moment </b></p>
