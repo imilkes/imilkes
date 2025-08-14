@@ -1,6 +1,6 @@
-# 🌞 🌴 🌬️ 🌻 'undefinable' by the system ✨ 🔥 🌊 🫀 (there is no meaning in words or order of words) 
+# 🌞 🌴 🌬️ 🌻 there is bliss in seeing others as equals or more; mirrors or windows ✨ 🔥 🌊 🫀 
 
-*🤍 Access to 'Spirit' does not equate to 'Spiritually Advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time. *
+🤍 access to 'Spirit' does not equate to 'Spiritually Advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory and the eternal.
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'.
 
@@ -11,9 +11,9 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' by left-inclined trains from behind is eventually revealed by the cosmos.
+         🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' by left-inclined trains from behind 
          🫀 Spirit team in heaven. 
-         💎 restarting a lifetime within a lifetime - cats.
+         💎 restarting a lifetime within a lifetime - cats = 1-1. 
          
          👵🏼 Androgenous sun women may be considered after this reset. They are the realest in my reincarnation (updated).
          
