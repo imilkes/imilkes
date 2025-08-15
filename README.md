@@ -24,7 +24,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
 
 <b> transitions </b>
 
-        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us. 
+        🤍 grateful to Sarah and those who believed.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
