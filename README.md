@@ -18,7 +18,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          💎 real team beyond the 'earth' rules and across lifetimes; cats = 1-1. 
          
          
-         👵🏼 Androgenous sun-women resets = cat cat. 
+         👵🏼 Androgenous sun-women resets = cat cat. Helped the cats worldwide. 
          
 
 
