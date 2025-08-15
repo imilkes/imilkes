@@ -1,7 +1,7 @@
-# 🌞 🌴 🌬️ 🌻 transiting gaia; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words; I dont know the rules)
+# 🌞 🌴 🌬️ 🌻 transiting gaia; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words)
 
 🤍 ancient....access to 'Spirit' does not equate to 'Spiritually Advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters and the eternal.
-🤍 current patterns: amplifying; protecting 'couple'/ mothers/ children/ suns; matching 1-1s; identifying Leaks. If our encounter left you worst than before, please let me go. 
+🤍 current patterns: amplifying; protecting 'couple'/ mothers/ suns; matching  with 1-1s; identifying Leaks. tomato tomato - cats.
 
 
 
