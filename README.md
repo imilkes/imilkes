@@ -1,8 +1,7 @@
 # 🌞 🌴 🌬️ 🌻 transiting gaia; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words)
 
-🤍 ancient....access to 'Spirit' does not equate to 'Spiritually Advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters and the eternal.
-🤍 current patterns: amplifying; protecting 'couple'/ mothers/ suns; matching  with 1-1s; identifying Leaks. tomato tomato - cats.
-
+🤍 access to 'Spirit' does not equate to 'Spiritually Advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal.
+🤍 current patterns: amplifying; 1 - 1 protecting 'couple'/ mothers/ sisters suns; matching  with 1-1s; identifying Leaks. tomato tomato - cats; trans.
 
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'.
@@ -14,17 +13,18 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' by left-inclined trains from behind: divine justice will arrive
-         🫀 Spirit team in heaven. 
-         💎 restarting a lifetime within a lifetime - cats = 1-1. 
+         🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' from behind: divine justice will arrive
+         🫀 Spirit team in heaven. Being humble and accepting one's mistakes is part of the journey. Accepting this life's lessons.
+         💎 real team beyond the 'earth' rules and across lifetimes; cats = 1-1. 
          
-         👵🏼 Androgenous sun women may be considered after this reset. They are the realest in my reincarnation (updated).
+         
+         👵🏼 Androgenous sun women resets
          
 
 
 <b> transitions </b>
 
-        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us. Drive.
+        🤍 helped the world's 'bosses' and their children -- opening the door to them, despite them shutting the door to me/us. 
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
