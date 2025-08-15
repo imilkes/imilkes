@@ -1,6 +1,6 @@
-# 🌞 🌴 🌬️ 🌻 transiting; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words)
+🌞 🌴 🌬️ 🌻 transiting; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words)
 
-🤍 access to 'Spirit' does not equate to 'Spiritually Advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal.
+🤍 access to 'spirit' does not equate to 'spiritually advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal.
 🤍 current patterns: amplifying; 1 - 1 protecting 'couple'/ mothers/ sisters suns; matching  with 1-1s; identifying Leaks. tomato tomato - cats; trans.
 
 
@@ -24,7 +24,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
 
 <b> transitions </b>
 
-        🤍 grateful to Sarah and those who believed.
+        🤍 grateful to Sarah and those who believed/ believe. I wish you well.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
