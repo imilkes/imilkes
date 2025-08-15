@@ -1,4 +1,4 @@
-# 🌞 🌴 🌬️ 🌻 transiting gaia; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words)
+# 🌞 🌴 🌬️ 🌻 transiting; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words)
 
 🤍 access to 'Spirit' does not equate to 'Spiritually Advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal.
 🤍 current patterns: amplifying; 1 - 1 protecting 'couple'/ mothers/ sisters suns; matching  with 1-1s; identifying Leaks. tomato tomato - cats; trans.
@@ -14,11 +14,11 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
          🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' from behind: divine justice will arrive
-         🫀 Spirit team in heaven. Being humble and accepting one's mistakes is part of the journey. Accepting this life's lessons.
+         🫀 Spirit team in heaven. 
          💎 real team beyond the 'earth' rules and across lifetimes; cats = 1-1. 
          
          
-         👵🏼 Androgenous sun women resets
+         👵🏼 Androgenous sun-women resets = cat cat. 
          
 
 
