@@ -1,30 +1,29 @@
-🌞 🌴 🌬️ 🌻 transiting; creator and student; mirrors or windows ✨ 🔥 🌊 🫀 (no meaning in orders/ words)
+🌞 🌴 🌬️ 🌻 doer ✨ 🔥 🌊 🫀 
 
-🤍 access to 'spirit' does not equate to 'spiritually advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal.
-🤍 current patterns: amplifying; 1 - 1 protecting 'couple'/ mothers/ sisters suns; matching  with 1-1s; identifying Leaks. tomato tomato - cats; trans.
+🤍 access to 'spirit' does not equate to 'spiritually advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal, the auditors, the doers.
+🤍 current patterns: amplifying; 1 - 1 protecting 'couple'/ mothers/ sisters suns; matching  with 1-1s; identifying Leaks. trans - cats; trans.
 
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'.
 
 <b> ilana == 'tree' </b>
                                     
-         🫀💎 Spiritual integrity and actions are always registered regardless of the system participants, the system intentions and the system 'state'.
+         🫀💎 Spiritual integrity and actions are always registered regardless of the system participants, intentions and 'states'.
          🪞 Your Life Review is your life review. People will misjudge you anyways. Be true to who you are and what you believe in.
-         ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage or going backwards.
-         🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. There is always an echo in the akasha.
+         ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage.
+         🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. 
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' from behind: divine justice will arrive
-         🫀 Spirit team in heaven. 
-         💎 real team beyond the 'earth' rules and across lifetimes; cats = 1-1. 
+         🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' from behind: divine justice will arrive.
+         🫀 
+         🫀💎 real team beyond the 'earth' rules and across lifetimes.
          
          
-         👵🏼 Androgenous sun-women resets = cat cat. Helped the cats worldwide. 
+         👵🏼 Androgenous sun-women resets. Besides 2-3 people, my real team is in heaven. 
          
 
 
 <b> transitions </b>
 
-        🤍 grateful to Sarah and those who believed/ believe. I wish you well.
         🚀 launched World Tech Makers, the 1st coding academy in LatAm; also launched from 🇨🇴 🇧🇷 🇨🇱 🇲🇽 🇪🇺 🇺🇸 
         🗺️ launched Nativo Digital to teach children how to code = https://vimeo.com/128600734/ 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
@@ -48,6 +47,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
 
 <b> Beliefs, values, experiences and what I know to be true </b>
    
+       🤍 grateful to Sarah and those who believed/ believe. I wish you well.
        🌹 I believe in the power of integrity, the integrity of intentions and the spirit world. 
        🏄‍♀️ I know Love is the greatest force, beyond time and space.
        🌠 We are souls visiting Gaia, temporarily, to create, reinvent ourselves and learn.
@@ -56,7 +56,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🌊 Receiving help or helping others are not signs of weakness or trauma. 
        🛰️ I appreciate Self-Agency, Independence, Truth and Kindness.
        📝 There is always something to learn. 
-       🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' there are things like 'motherhood'. 
+       🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' you are not seen as a mother.
        🤍 Forever doubted by this planet's participants. Thank You Anyways. 
        🫀 All is an evolving spiritual process. Love guides, the roles evolve = the essence stays.
   
