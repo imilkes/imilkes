@@ -14,7 +14,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. 
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
          🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' from behind: divine justice will arrive.
-         🫀 
+         🥸 bullying or any type of micro-violence is never justifiable, especially when there is not a 'why'.
          🫀💎 real team beyond the 'earth' rules and across lifetimes.
          
          
@@ -56,7 +56,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🌊 Receiving help or helping others are not signs of weakness or trauma. 
        🛰️ I appreciate Self-Agency, Independence, Truth and Kindness.
        📝 There is always something to learn. 
-       🌹 Your life review is your life review. Ego will always question, especially if in the 'standards of worth' you are not seen as a mother.
+       🌹 Your life review is your life review. Ego will always question, especially when coming from bullying and the low astral plane.
        🤍 Forever doubted by this planet's participants. Thank You Anyways. 
        🫀 All is an evolving spiritual process. Love guides, the roles evolve = the essence stays.
   
