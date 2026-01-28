@@ -1,4 +1,4 @@
-🌞 🌴 🌬️ 🌻 doer, retos espirituales ✨ 🔥 🌊 🫀 
+🌞 🌴 🌬️ 🌻 vi✨ 🔥 🌊 🫀 
 
 🤍 access to 'spirit' does not equate to 'spiritually advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal, the auditors, the doers.
 🤍 current patterns: spiritual challenges, anchoring to spirit, creating astral flowers and heart-based merkabas
