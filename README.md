@@ -6,6 +6,7 @@
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'.
 
+
 <b> ilana == 'tree' </b>
                                     
          🫀💎 Spiritual integrity and actions are always registered regardless of the system participants, intentions and 'states'.
@@ -32,7 +33,11 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
         💎 launched Colombia Diversa's LGTBQ App (1st version): = https://celeste.colombiadiversa.org/
         🤍 actively participated in the reactivation of the system update worldwide. The key is remembering who launched 'before'.
         
-        🧭 Founder at: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
+        🧭 Founder at World Tech: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
+        
+        |Currently focused on building the new chapter at World Tech.|
+        |------------------------------------------------------------|
+        |Phase I:| Option Call Software Goes Local|
         
 
 <b> Studies </b>
