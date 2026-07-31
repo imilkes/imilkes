@@ -3,6 +3,10 @@
 🤍 access to 'spirit' does not equate to 'spiritually advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal, the auditors, the doers.
 🤍 current patterns: spiritual challenges, anchoring to spirit, creating astral flowers and heart-based merkabas
 
+ |Currently focused on building the new chapter at World Tech.|
+ |------------------------------------------------------------|
+        |Phase I:| Option Call Software Goes Local|
+
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'.
 
@@ -35,9 +39,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
         
         🧭 Founder at World Tech: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
         
-        |Currently focused on building the new chapter at World Tech.|
-        |------------------------------------------------------------|
-        |Phase I:| Option Call Software Goes Local|
+      
         
 
 <b> Studies </b>
