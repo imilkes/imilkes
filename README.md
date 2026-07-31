@@ -46,8 +46,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
 
 
 <b> Beliefs, values, experiences and what I know to be true </b>
-   
-       🤍 grateful to Sarah and those who believed/ believe. I wish you well.
+  
        🌹 I believe in the power of integrity, the integrity of intentions and the spirit world. 
        🏄‍♀️ I know Love is the greatest force, beyond time and space.
        🌠 We are souls visiting Gaia, temporarily, to create, reinvent ourselves and learn.
