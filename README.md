@@ -4,6 +4,7 @@
 🤍 current patterns: spiritual challenges, anchoring to spirit, creating astral flowers and heart-based merkabas
 
  |Currently focused on building the new chapter at World Tech.|
+ |------------------------------------------------------------|
  |Phase I: Option Call Software Goes Local                    |
  |Phase II: Option Call Software Goes Global                  |
  |Phase III: Option Call Software Consolidates                |
