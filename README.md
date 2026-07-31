@@ -1,37 +1,28 @@
 🌞 🌴 🌬️ 🌻 vi✨ 🔥 🌊 🫀 
 
 🤍 access to 'spirit' does not equate to 'spiritually advanced'. There is always an echo in the akasha. Grateful with Spirit for this reincarnation and opportunity to be on Earth at this present time; appreciative of everyone on this path, the transitory, the doubters, the eternal, the auditors, the doers.
-🤍 current patterns: spiritual challenges, anchoring to spirit, creating astral flowers and heart-based merkabas
+🤍 current patterns: spiritual challenges, anchoring to spirit, creating astral flowers and heart-based merkabas.
+
 
  |Currently focused on building the new chapter at World Tech.|
  |------------------------------------------------------------|
- |Phase I: Option Call Software Goes Local                    |
- |Phase II: Option Call Software Goes Global                  |
- |Phase III: Option Call Software Consolidates                |
+ |Phase I: Option Call Software Goes Local, 2026              |
+ |Phase II: Option Call Software Goes Global, 2026 - 2028     |
+ |Phase III: Option Call Software Consolidates, 2028 - 2031   |
+
+My company, World Tech, shapes how the world learns, travels, eats and invests. I am currently focused on refactoring highly valuable infrastructure and creating two operating systems for the startup's service lines.
+
+I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective' while unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution.
 
 
- 
- 
-
-
-I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective', unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution. Giver. It's been 'proven'.
-
-
-<b> ilana == 'tree' </b>
+<b> 🧭 ilana == 'tree' </b>
                                     
          🫀💎 Spiritual integrity and actions are always registered regardless of the system participants, intentions and 'states'.
          🪞 Your Life Review is your life review. People will misjudge you anyways. Be true to who you are and what you believe in.
          ✨ Information from Spirit is a gift. Knowing something and choosing love despite it all is not an act of self-sabotage.
          🫀 Creating from love at the core is ever-lasting, regardless of what is done to the creation or the creator. 
          🔮 Sometimes you elevate yourself and others by choosing from love and freewill. Again, your life review is your life review.
-         🔪🚶🏼‍➡️the man who knew and has been seeing the women-suns as 'to be trashed' and 'to be crashed' from behind: divine justice will arrive.
-         🥸 bullying or any type of micro-violence is never justifiable, especially when there is not a 'why'.
-         🫀💎 real team beyond the 'earth' rules and across lifetimes.
          
-         
-         👵🏼 Androgenous sun-women resets. Besides 2-3 people, my real team is in heaven. 
-         
-
 
 <b> transitions </b>
 
@@ -40,13 +31,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
         🔓 launched LatAm's 1st digital nomads visa to foster eco-tourism.
         ⛓️ launched the world's 1st climate wallet for geo-localized biodiversity climate assets on-chain.
         🫆 launched decentralized education initiatives to empower children and teenagers = https://vimeo.com/417870288/
-        💎 launched Colombia Diversa's LGTBQ App (1st version): = https://celeste.colombiadiversa.org/
-        🤍 actively participated in the reactivation of the system update worldwide. The key is remembering who launched 'before'.
-        
-        🧭 Founder at World Tech: selvawild.com (today), @epioneers, @makerkits, @nativodigital, @worldtechmakers
-        
-      
-        
+        💎 launched Colombia Diversa's LGTBQ App (1st version): = https://celeste.colombiadiversa.org/        
 
 <b> Studies </b>
 
@@ -72,7 +57,7 @@ I am ilana, a fullstack product designer and tech-driven founder with +11 years 
        🤍 Forever doubted by this planet's participants. Thank You Anyways. 
        🫀 All is an evolving spiritual process. Love guides, the roles evolve = the essence stays.
   
-        
+       
 
 <p>🚀 <b>Tech Stack At The Moment </b></p>
 <p> <a target="_blank" href="https://raw.githubusercontent.com/devicons/devicon/master/icons/ruby/ruby-original.svg" style="display: inline-block;"><img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/ruby/ruby-original.svg" alt="ruby" width="42" height="42" /></a>
