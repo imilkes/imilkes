@@ -4,7 +4,13 @@
 🤍 current patterns: spiritual challenges, anchoring to spirit, creating astral flowers and heart-based merkabas.
 
 
-My company, World Tech, shapes how the world learns, travels, eats and invests. I am currently focused on refactoring highly valuable infrastructure and creating two operating systems for the startup's service lines.
+My company, World Tech, shapes how the world learns, travels, eats and invests. I am currently focused on refactoring highly valuable infrastructure and creating operating systems for the startup's service lines. I defined this year's developments with these principles in mind:
+
+1. Design to Deployment: Monday to Saturday. Always ship something. 
+2. Modular Weeks. Focused sprints, different service lines per week. 
+3. Interdependent yet Independent. API-enabled without dependencies.
+
+My current SPRINT lasts 12 months with monthly releases, an agnostic approach to business development and a multi-market strategy. 
 
 I am ilana, a fullstack product designer and tech-driven founder with +11 years of experience across industries like edTech, govtech, climate fintech, web3 and financial markets. I like building solutions that improve or disrupt (for the better) our societies and 'the collective' while unleashing human potential at its full capacity. In this lifetime, I realized love is a quantum leap and everyone is interconnected. Our choices and intentions, while in system loops and parallel realities, are evolution opportunities for our souls to evolve and fulfill our agreements and life purposes. While I am not navigating mediums, armies, psychics and hypnotists, I like to create, travel and grow. Always appreciative of the groups I incarnate with. Thanks to all because our projections are our spiritual evolution.
 
